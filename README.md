@@ -7,13 +7,11 @@ https://youtu.be/bWhOu71yxDo
 
 ![image](https://github.com/user-attachments/assets/f0f2ebfa-7b42-454a-bf5d-a00dd0e119eb)
 
-![image](https://github.com/user-attachments/assets/84d321eb-f556-4214-bd2f-cd458e24c66e)
-
 ![image](https://github.com/user-attachments/assets/5dab8109-6965-4214-b435-dd6c6fab2c1f)
 
 ![image](https://github.com/user-attachments/assets/3446c382-f7a1-4cb7-af79-d6a7132cec65)
 
-![image](https://github.com/user-attachments/assets/e8f1b898-3a34-4e39-8487-6ed34b603fe5)
+![image](https://github.com/user-attachments/assets/3a2ab505-c932-4b43-a8dc-f258ac416db6)
 
 ![image](https://github.com/user-attachments/assets/ba7a7a11-b373-47ad-bea4-076f734537ca)
 
